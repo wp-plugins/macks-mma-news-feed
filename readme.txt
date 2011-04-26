@@ -14,6 +14,29 @@ Mack's MMA News Feed plugin incorporates an external RSS news feed into a cool l
 
 Relevant Keywords: mma, mixed martial arts, fight, fights, fighting, ufc, ultimate fighting championship, boxing, karate, kick boxing, wrestling, mma news, mma results, ufc news, ufc results
 
+A variety of news is available, including:
+<ul>
+<li>Latest MMA Fighting News</li>
+<br />
+<li>Individual Fighter News</li>
+<br />
+<li>New Entrants, Contract Reviews</li>
+<br />
+<li>MMA Fighting Rumors</li>
+<br />
+<li>MMA/UFC Gossip, Chat</li>
+<br />
+<li>Upcoming Fights</li>
+<br />
+<li>Fight Results</li>
+<br />
+<li>Championship Updates</li>
+<br />
+<li>Top Ranked Fighters</li>
+</ul>
+
+It's a proven fact that many MMA/UFC fans also enjoy <a href="http://www.bet-on-the-nfl.com">NFL betting</a>, since that action-packed, brute force nature of American football is similar to the MMA. While MMA wagering is relatively new and not offered at most Vegas gaming companies, many top <a href="http://www.sportsbetting21.com">sports betting</a> sites - in the offshore world - do cater to this type of interest. Many of these sites also offer <a href="http://www.hot-online-casinos.us">online casinos</a>, games, news, tips, and more.
+
 Thanks,
 
 Mack Bincroft
