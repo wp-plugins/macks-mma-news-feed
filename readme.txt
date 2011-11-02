@@ -3,7 +3,7 @@ Contributors: mackbincroft
 Donate link: http://www.jawer.org
 Tags: mma, mixed martial arts, fight, fights, fighting, ufc, ultimate fighting championship, boxing, karate, kick boxing, wrestling, mma news, mma results, ufc news, ufc results
 Requires at least: 2.2.1
-Tested up to: 3.1
+Tested up to: 3.2.1
 Stable tag: 0.5
 
 Lists the Latest MMA News
