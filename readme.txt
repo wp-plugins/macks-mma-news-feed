@@ -35,10 +35,6 @@ A variety of news is available, including:
 <li>Top Ranked Fighters</li>
 </ul>
 
-It's a proven fact that many MMA/UFC fans also enjoy <a href="http://www.bet-on-the-nfl.com">NFL betting</a>, since that action-packed, brute force nature of American football is similar to the MMA. While MMA wagering is relatively new and not offered at most Vegas gaming companies, many top <a href="http://www.sportsbetting21.com">sports betting</a> sites - in the offshore world - do cater to this type of interest. Many of these sites also offer <a href="http://www.hot-online-casinos.us">online casinos</a>, games, news, tips, and more. For non-English speakers: <br />
-<a href="http://www.vip8888.net" target="_blank">网上赌场</a><br />
-<a href="http://www.macaubaccarat888.com" target="_blank">网上百家乐</a><br />
-<a href="http://www.baccarat999.com" target="_blank">百家乐</a>
 
 Thanks,
 
